@@ -1,2 +1,1 @@
-# fortnight
-blog website
+i dont have the energy to write this right now lol...
